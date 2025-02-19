@@ -4,6 +4,10 @@ Instructions for making a google powered condom launcher for the ultimate nerd r
 As seen in the reel on my Instagram:
 https://www.instagram.com/reel/DGL-qspOhVT/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
 
+Follow me on YouTube or Instagram for more Stupid Electronic Content!
+- www.youtube.com/BrenMaartens
+- www.instagram.com/BrenMaartens
+
 The whole setup is pretty Janky but here are the things you need:
 
 # Shopping List 
